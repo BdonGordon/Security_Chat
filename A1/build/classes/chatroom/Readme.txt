@@ -1,0 +1,1 @@
+F1 is to clear convo screen
